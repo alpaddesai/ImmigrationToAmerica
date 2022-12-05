@@ -8,4 +8,4 @@ THe project provides an overview of immigration process to america
 
 ![imaged](USCopyrightCertificate.png)
 
-Additional details reference: 
+Additional details reference: https://github.com/alpaddesai/RealEstatePortfolioIdea2022
