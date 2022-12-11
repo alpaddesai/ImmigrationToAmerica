@@ -18,4 +18,4 @@ https://www.businessbecause.com/news/mba-degree/7059/h1b-visa-changes-trump-mba
 
 ![imaged](USCopyrightCertificate.png)
 
-Additional details reference: https://github.com/alpaddesai/RealEstatePortfolioIdea2022
+Additional details reference: https://github.com/alpaddesai/RealEstatePortfolioIdea
