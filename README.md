@@ -4,6 +4,8 @@ THe project provides an overview of immigration process to america
 
 ![image](ImmigrationToAmerica.jpg)
 
+![image](AdmissionLetters.jpg)
+
 ### Keeping up to date on latest news
 ### Student Visas
 In the academic year 2020-2021 167,582  students from India on student visa (https://in.usembassy.gov/u-s-mission-in-india-issues-highest-ever-number-of-student-visas-in-2022/ Links to an external site.)  . 82000 were issued in 2022.   For China 155,000 student visas were granted from 2021-2022  
