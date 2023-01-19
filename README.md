@@ -16,7 +16,7 @@ The H1B visa program is 65000 per year + 20,000 additional visas for foreign pro
 ### latest news on major changes 2020
 https://www.businessbecause.com/news/mba-degree/7059/h1b-visa-changes-trump-mba
 
-## latest news on congress 2021
+## latest news 2021
 https://en.wikipedia.org/wiki/January_6_United_States_Capitol_attack#:~:text=On%20January%206%2C%202021%2C%20following,Capitol%20Building%20in%20Washington%2C%20D.C.
 
 ## latest news on jobs in 2022
