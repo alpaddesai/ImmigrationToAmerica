@@ -13,7 +13,7 @@ In the academic year 2020-2021 167,582  students from India on student visa (htt
 ### H1B Visa
 The H1B visa program is 65000 per year + 20,000 additional visas for foreign professionals who graduate with a master's degree or doctorate from a U.S. institution of higher learning (https://www.americanimmigrationcouncil.org/research/h1b-visa-program-fact-sheet#:~:text=Since%20the%20category%20was%20created,higher%20learning%20(Figure%201).  
 
-### latest news on major changes 2020
+### H1B Visa and MBA latest news on major changes 2020
 https://www.businessbecause.com/news/mba-degree/7059/h1b-visa-changes-trump-mba
 
 ### latest news 2021
