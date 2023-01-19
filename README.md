@@ -19,7 +19,7 @@ https://www.businessbecause.com/news/mba-degree/7059/h1b-visa-changes-trump-mba
 ## latest news 2021
 https://en.wikipedia.org/wiki/January_6_United_States_Capitol_attack#:~:text=On%20January%206%2C%202021%2C%20following,Capitol%20Building%20in%20Washington%2C%20D.C.
 
-## latest news on jobs in 2022
+## latest news 2022
 https://www.bloomberg.com/news/articles/2023-01-18/what-2022-tech-layoffs-say-about-silicon-valley-the-economy
 
 ![image](EthicsandExcellence.png)
