@@ -16,6 +16,9 @@ The H1B visa program is 65000 per year + 20,000 additional visas for foreign pro
 ### Presidential inauguration 2017
 https://en.wikipedia.org/wiki/Inauguration_of_Donald_Trump
 
+### High tech jobs 2018
+https://www.indeed.com/lead/silicon-valley-trends-2018
+
 ### Admissions 2019
 https://en.wikipedia.org/wiki/Varsity_Blues_scandal#:~:text=Thirty%2Dthree%20parents%20of%20college,scores%20and%20bribe%20college%20officials.
 
