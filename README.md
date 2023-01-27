@@ -38,4 +38,4 @@ https://www.bloomberg.com/news/articles/2023-01-18/what-2022-tech-layoffs-say-ab
 
 ![imaged](USCopyrightCertificate.png)
 
-Additional details reference: https://github.com/alpaddesai/RealEstatePortfolioIdea
+Additional details reference: https://github.com/alpaddesai/LifeStyle
