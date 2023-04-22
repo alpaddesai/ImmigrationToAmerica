@@ -32,6 +32,8 @@ https://en.wikipedia.org/wiki/January_6_United_States_Capitol_attack#:~:text=On%
 ### High tech jobs latest news 2022
 https://www.bloomberg.com/news/articles/2023-01-18/what-2022-tech-layoffs-say-about-silicon-valley-the-economy
 
+![image](ImmigrationAmerica.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![imaged](USCopyrightCertificate.png)
