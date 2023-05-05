@@ -38,6 +38,10 @@ https://www.bloomberg.com/news/articles/2023-01-18/what-2022-tech-layoffs-say-ab
 
 ![image](HoldingBackQualifications.jpg)
 
+![image](InYourShoes.jpg)
+
+![image](InYourShoesII.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![imaged](USCopyrightCertificate.png)
