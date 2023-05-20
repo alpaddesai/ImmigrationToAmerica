@@ -44,6 +44,8 @@ https://www.bloomberg.com/news/articles/2023-01-18/what-2022-tech-layoffs-say-ab
 
 ![image](PositivePsychology.jpg)
 
+![image](Inyourshoespsychology.jpg)
+
 ![image](Healthcare.jpg)
 
 ![image](EthicsandExcellence.png)
